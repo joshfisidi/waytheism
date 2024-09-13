@@ -1,2 +1,1 @@
-# osneom
-the photonic blockchain
+# we are all gods; we are all required.
